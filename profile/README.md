@@ -5,9 +5,9 @@
 ** LAST UPDATED : MARCH 20, 2024.**
 
 
-<a href='https://watchflix.biz/en/movie/1151423/i-am-not-big-bird'>🔴CLICK HERE TO WATCH MOVIE</a>
+<a href='https://screenhub.site/en/movie/1151423/i-am-not-big-bird'>🔴CLICK HERE TO WATCH MOVIE</a>
 
-<a href='https://watchflix.biz/en/movie/1151423/i-am-not-big-bird'>🔴CLICK HERE TO DOWNLOAD MOVIE</a>
+<a href='https://screenhub.site/en/movie/1151423/i-am-not-big-bird'>🔴CLICK HERE TO DOWNLOAD MOVIE</a>
 
 
 I Am Not Big Bird is an upcoming Movie produced by Parava Films
